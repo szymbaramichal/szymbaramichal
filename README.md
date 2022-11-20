@@ -6,4 +6,4 @@
 - - 📫 How to reach me: szymbaramichal@gmail.com
 - - 👉🏻 Also there is my linkedin profile url: https://www.linkedin.com/in/michalszymbara 
 - - 📃 English CV: https://drive.google.com/file/d/18inISitzvUEAkgU7v2Z4QqeZMejuJWc7/view?usp=sharing (To be updated 🙂)
-- - 📃 Polish CV: https://drive.google.com/file/d/1LGjOrTXtEw6IB88GkieAKCY05GcywYXu/view?usp=sharing
+- - 📃 Polish CV: https://drive.google.com/file/d/1epyPQMgkTZgm-72_xPl9BZtbxmh6jRZz/view
